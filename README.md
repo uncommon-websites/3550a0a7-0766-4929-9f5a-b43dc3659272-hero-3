@@ -1,0 +1,2 @@
+# 3550a0a7-0766-4929-9f5a-b43dc3659272-hero-3
+Hero section variant 3 for 3550a0a7-0766-4929-9f5a-b43dc3659272
